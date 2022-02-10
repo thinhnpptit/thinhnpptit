@@ -1,3 +1,3 @@
-_**Ignition (n): The motivational process that occurs when your identity becomes linked to a long-term vision of your future. Triggers significant amounts of unconscious energy; usually marked by the realization: That is who I want to be.**_
+_**Go confidently in the direction of your dreams. Live the life you've imagined. As you simplify your life, the laws of the universe will be simpler.**_
 
- Daniel Coyle
+Henry David Thoreau
