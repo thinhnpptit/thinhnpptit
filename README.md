@@ -1,3 +1,3 @@
-_**If you get up in the morning and think the future is going to be better, it is a bright day. Otherwise, it's not.**_
+_**Winning isn't everything.. It's the only thing.**_
 
-Elon Musk
+Vincent van Gogh
