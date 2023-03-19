@@ -1,3 +1,3 @@
-_**I am an optimist. It does not seem too much use being anything else..**_
+_**Sustenance! Your health is always the best prescription.**_
 
-Winston Churchill
+Lorii Myers
